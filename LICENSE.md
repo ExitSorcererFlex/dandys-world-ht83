@@ -1,4 +1,4 @@
-
+no-ban dandy's world Scripts is the best dandy's world Script, featuring auto-collect and auto-sell. Safe and powerful for all your needs.
 
 
 
